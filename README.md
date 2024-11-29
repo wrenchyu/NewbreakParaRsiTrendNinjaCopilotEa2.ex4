@@ -1,0 +1,1 @@
+# NewbreakParaRsiTrendNinjaCopilotEa2.ex4
